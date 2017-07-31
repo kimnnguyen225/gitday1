@@ -7,6 +7,6 @@ Kim is an eager traveler, devoted adventurer, and a zealous photographer. When s
 
 Inspired by B-Corp Thrive and grateful for being a member of its amazing family, as well as the belief system of "pay it forward" and "force for good", Kim help others stepping through life stressors by finding healthy perceptions of themselves and strengthen their relationships so they can feel complete, whole, and safe. She believed that community-building is an art with elusive goals, even if someone gets the physical elements right, there’s no guarantee that a place will function as a true community, as more than just a place. That said, it really helps to have a good place in which to anchor true community.
 
-At the present time, Kim is joining the bootcamp journey to become a software developer with Mr. Doud and Mr. Blessing (her instructors) for 100 weeks at Max Technical Training locates in Mason, OH
+At the present time, Kim is joining the bootcamp journey to become a software developer with Mr. Doud and Mr. Blessing (her instructors) for 10 weeks at Max Technical Training locates in Mason, OH
 
 Kim favorite quote is "Think of me as the keeper of the eternal flame of knowledge. Whose mission is to ensure the flame never goes out."
