@@ -1,6 +1,6 @@
 # README.md
 
-## My name is Kim Nguyen
+## My name is Kim Nguyen.
 
 ## My goals for this bootcamp is to accomplish the Java programming language, be familiar with creating software (projects of my own) and proficiency in developing software as well as land a good job in my career path in IT field.
 
