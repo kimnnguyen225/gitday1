@@ -9,4 +9,4 @@ Inspired by B-Corp Thrive and grateful for being a member of its amazing family,
 
 At the present time, Kim is joining the bootcamp journey to become a software developer with Mr. Doud and Mr. Blessing (her instructors) for 10 weeks at Max Technical Training locates in Mason, OH
 
-Kim favorite quote is "Think of me as the keeper of the eternal flame of knowledge. Whose mission is to ensure the flame never goes out."
+Kim favorite quote is <b>"Think of me as the keeper of the eternal flame of knowledge. Whose mission is to ensure the flame never goes out."</b>
